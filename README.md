@@ -1,5 +1,4 @@
 That
-is
-a
+was
 awesome
 present
