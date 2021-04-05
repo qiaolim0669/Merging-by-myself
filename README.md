@@ -1,5 +1,5 @@
 This
 is
-a
-nice
-present
+an
+awesome
+gift
